@@ -1,1 +1,1 @@
-### Thingking Machine (chinfp)
+### Criticizing Machine (chinfp)
